@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning java
 - 💞️ I’m looking to collaborate on ai and passion projects
-- 📫 How to reach me aidenm236@gmail.com
+- 📫 How to reach me aidenmanoj2028@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I go to Dulles High School Math and Science Academy
 
